@@ -1,4 +1,4 @@
-# farmskins-promo-code: Farmskins Promo Code "CSGOBETTINGS" - Get Free $1
+
 <h1>Farmskins Promo Code "CSGOBETTINGS" – Get Free $1 for CS:GO Case Opening</h1>
 
 Are you a CS:GO player looking for free balance to open cases? Farmskins is one of the most popular case-opening platforms, offering a wide selection of cases with great drop rates. If you want to kickstart your case-opening experience without spending money, the Farmskins promo code "CSGOBETTINGS" is your chance to claim a free $1 balance instantly!
