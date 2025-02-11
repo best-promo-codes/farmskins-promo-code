@@ -10,6 +10,7 @@ Are you a CS:GO player looking for free balance to open cases? Farmskins is one 
   </tr>
   <tr>
     <td>➡️Farmskins Promo Code "CSGOBETTINGS" - Get Free $1</td>
+    <td>Enjoy the Bonus</td>
   </tr>
   <tr>
     <td>✌️Special Bonus</td>
@@ -46,6 +47,7 @@ Farmskins is one of the most trusted platforms for CS:GO case openings, offering
   </tr>
   <tr>
     <td>➡️Farmskins Promo Code "CSGOBETTINGS" - Get Free $1</td>
+     <td>Enjoy the Bonus</td>
   </tr>
   <tr>
     <td>✌️Special Bonus</td>
@@ -71,6 +73,7 @@ Many players wonder if Farmskins is a legitimate site. The answer is yes! Farmsk
   </tr>
   <tr>
     <td>➡️Farmskins Promo Code "CSGOBETTINGS" - Get Free $1</td>
+     <td>Enjoy the Bonus</td>
   </tr>
   <tr>
     <td>✌️Special Bonus</td>
