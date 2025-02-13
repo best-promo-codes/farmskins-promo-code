@@ -7,7 +7,7 @@ Are you a CS:GO player looking for free balance to open cases? Farmskins is one 
   <tr>
     <td>✅ Product</td>
     <td>Promo Code</td>
-    <td>Exculise Bonus</td>
+    <td>Exclusive Bonus</td>
   </tr>
   <tr>
     <td>➡️ Farmskins Promo Code</td>
