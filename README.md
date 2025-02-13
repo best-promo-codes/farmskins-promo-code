@@ -42,11 +42,11 @@ Redeeming your free $1 is quick and easy. Follow these steps:
 <h2>Why Choose Farmskins?</h2>
 Farmskins is one of the most trusted platforms for CS:GO case openings, offering several advantages:
 
-✅ **Better Drop Rates** – Higher chances of pulling rare skins compared to standard CS:GO cases.
-✅ **Exclusive Case Selection** – Unique cases featuring special skins and themed collections.
-✅ **Daily Free Rewards** – Players can earn bonuses just by logging in and participating in site events.
-✅ **Instant Deposits & Withdrawals** – Various payment methods are available, and skin withdrawals are fast.
-✅ **Provably Fair System** – Transparent algorithms ensure fairness in every case opening.
+- ✅ **Better Drop Rates** – Higher chances of pulling rare skins compared to standard CS:GO cases.
+- ✅ **Exclusive Case Selection** – Unique cases featuring special skins and themed collections.
+- ✅ **Daily Free Rewards** – Players can earn bonuses just by logging in and participating in site events.
+- ✅ **Instant Deposits & Withdrawals** – Various payment methods are available, and skin withdrawals are fast.
+- ✅ **Provably Fair System** – Transparent algorithms ensure fairness in every case opening.
 
 
 <h2>More Ways to Get Free Balance on Farmskins</h2>
